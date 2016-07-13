@@ -1,4 +1,4 @@
 # Resume
-Microsoft Onedrive
-My email
-Password from website
+My email is bentalkstoomuch2@gmail.com
+
+go to onedrive
